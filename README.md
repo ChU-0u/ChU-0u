@@ -19,6 +19,7 @@ art by: zzz | @orchid_dale on X/pixiv
 -- -- --
 ![IMG_8016](https://github.com/user-attachments/assets/1be05b27-5831-455d-bc3b-9c8d0190d2d9)
 
+art by: meimei on pixiv
 
 <!---
 ChU-0u/ChU-0u is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

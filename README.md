@@ -9,9 +9,10 @@ art by: zzz | @orchid_dale on X/pixiv
 - Honkai impact 3rd | Honkai star rail | Gi | Wuwa | pjsk | r1999 | crk
 -- -- --
 - favorite characters ♥
-- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Su
-- HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | Welt
+- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Welt Yang
+- HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou
+- R1999- Getian
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika
 - Vocaloids:

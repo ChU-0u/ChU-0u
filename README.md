@@ -8,7 +8,7 @@ art by: zzz | @orchid_dale on X/pixiv
 - Games:
 - Honkai impact 3rd | Honkai star rail | Gi | Wuwa | pjsk | r1999 | crk
 -- -- --
-- favorite characters ♥:
+- favorite characters ♥
 - hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Welt Yang
 - HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou
@@ -22,7 +22,7 @@ art by: zzz | @orchid_dale on X/pixiv
 
 art by: meimei on pixiv
 
-- ships ♥:
+- ships ♥
 - Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
 - HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei | RobinHill
 - Gi- CynoNari | CloriVia

@@ -26,8 +26,21 @@ art by: meimei on pixiv
 - Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
 - HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei | RobinHill
 - Gi- CynoNari | CloriVia
--- -- --
+
 - im fine with any ship untill its weird or problematic.
+-- -- --
+![IMG_7971](https://github.com/user-attachments/assets/a27559f8-39a9-46ff-834e-d0fa052069b2)
+art by: Hoyoverse/Mihoyo
+
+- favorite performers:
+- Queen
+- GHOST
+- OR3O
+- ミラクルミュージカル
+- Нежное это
+- Hoyoverse/Mihoyo music
+- JT Music
+-- -- --
 <!---]
 ChU-0u/ChU-0u is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

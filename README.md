@@ -22,7 +22,13 @@ art by: zzz | @orchid_dale on X/pixiv
 
 art by: meimei on pixiv
 
-<!---
+- ships:
+- Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
+- HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei | RobinHill
+- Gi- CynoNari | CloriVia
+-- -- --
+- im fine with any ship untill its weird or problematic.
+<!---]
 ChU-0u/ChU-0u is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->

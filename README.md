@@ -32,7 +32,7 @@ art by: meimei on pixiv
 ![IMG_7971](https://github.com/user-attachments/assets/a27559f8-39a9-46ff-834e-d0fa052069b2)
 art by: Hoyoverse/Mihoyo
 
-- favorite performers:
+- favorite performers
 - Queen
 - GHOST
 - OR3O

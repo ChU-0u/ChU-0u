@@ -10,7 +10,7 @@ current interests
 - ENA
 -- -- --
 favorite characters ♥
-- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Welt Yang
+- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Kevin Kaslana
 - HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou
 - R1999- Getian

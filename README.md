@@ -10,15 +10,15 @@ current interests
 - ENA
 -- -- --
 favorite characters ♥
-- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Kevin Kaslana
-- HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan
-- Gi- Furina | neuvillette | Albedo | Baizhu | Heizou
+- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal Kaslana
+- HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
+- Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari
 - R1999- Getian
 - HnK- phosphophyllite | padparadscha | rutile
-- HxH- Killua | Alluka | Illumi | Kurapika
+- HxH- Killua | Alluka | Illumi | Kurapika | Biscuit
 
-Vocaloids:
-- Gakupo | Kaito | Hatsune Miku
+Vocaloids
+- Gakupo | Kaito | Hatsune Miku | Teto
 -- -- --
 ![IMG_8016](https://github.com/user-attachments/assets/1be05b27-5831-455d-bc3b-9c8d0190d2d9)
 

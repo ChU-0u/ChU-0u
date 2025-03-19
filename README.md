@@ -13,7 +13,6 @@ favorite characters ♥
 - hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal Kaslana
 - HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari
-- R1999- Getian
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika | Biscuit
 
@@ -27,7 +26,6 @@ art by: meimei on pixiv
 ships ♥
 - Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
 - HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei | RobinHill
-- Gi- CynoNari | CloriVia
 
 - im fine with any ship untill its weird or problematic.
 -- -- --

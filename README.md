@@ -25,7 +25,7 @@ art by: meimei on pixiv
 -- -- --
 ships ♥
 - Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
-- HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei | RobinHill
+- HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei 
 
 - im fine with any ship untill its weird or problematic.
 -- -- --

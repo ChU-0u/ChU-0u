@@ -6,12 +6,13 @@ current interests
 - Anime:
 - OnS | HnK | HxH | the apothecary diaries
 - Games:
-- Honkai impact 3rd | Honkai star rail | Gi | Wuwa | pjsk | r1999 | crk
+- Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Gi | Wuwa | pjsk | r1999 | crk | BlackBeacon
 - ENA
 -- -- --
 favorite characters ♥
 - hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal Kaslana
 - HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
+- ZzZ- Vlad Hugo | Lighter | Burnice | Trigger
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika | Biscuit

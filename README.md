@@ -10,7 +10,7 @@ current interests
 - ENA
 -- -- --
 favorite characters ♥
-- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal Kaslana
+- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal 
 - HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
 - ZzZ- Vlad Hugo | Lighter | Burnice | Trigger
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari

@@ -36,11 +36,9 @@ art by: Hoyoverse/Mihoyo
 -- -- --
 favorite performers ♥
 - Queen
-- OR3O
 - ミラクルミュージカル
 - Нежное это
 - Hoyoverse/Mihoyo music
-- JT Music
 -- -- --
 <!---]
 ChU-0u/ChU-0u is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

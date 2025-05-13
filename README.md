@@ -6,7 +6,7 @@ current interests
 - Anime:
 - OnS | HnK | HxH | the apothecary diaries
 - Games:
-- Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Gi | Wuwa | pjsk | r1999 | crk | BlackBeacon
+- Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Genshin Impact | Wuwa | pjsk | Reverse1999 | crk | BlackBeacon
 - ENA
 -- -- --
 favorite characters ♥

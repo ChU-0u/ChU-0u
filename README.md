@@ -6,19 +6,18 @@ current interests
 - Anime:
 - OnS | HnK | HxH | the apothecary diaries
 - Games:
-- Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Genshin Impact | Wuwa | pjsk | Reverse1999 | crk | BlackBeacon
-- ENA
+- Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Genshin Impact | Reverse1999 | BlackBeacon | ENA: Dream BBQ
 -- -- --
 favorite characters ♥
-- hi3d- Otto Apocalypse | Kallen Kaslana | Kiana Kaslana | Fu Hua\Senti | Void Archives | Theresa Apocalypse | Su | Durandal 
-- HsR- Luocha | Jiaoqiu | Himeko | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
-- ZzZ- Vlad Hugo | Lighter | Burnice | Trigger
+- hi3d- Otto | Kallen | Kiana | Fu Hua\Senti | Void Archives | Theresa | Su | Durandal 
+- HsR- Luocha | Jiaoqiu | Mydei | Yanqing | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi
+- ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika | Biscuit
 
 Vocaloids
-- Gakupo | Kaito | Hatsune Miku | Teto
+- Gakupo | Kaito | Hatsune Miku
 -- -- --
 ![IMG_8016](https://github.com/user-attachments/assets/1be05b27-5831-455d-bc3b-9c8d0190d2d9)
 

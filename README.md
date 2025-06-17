@@ -30,7 +30,7 @@ ships ♥
 - 
 - im fine with any ship untill its weird or problematic.
 -- -- --
-![IMG_7971](https://github.com/user-attachments/assets/a27559f8-39a9-46ff-834e-d0fa052069b2)
+![IMG_0431](https://github.com/user-attachments/assets/f924b17a-09be-4944-b1db-38096d999391)
 
 art by: Hoyoverse/Mihoyo
 -- -- --

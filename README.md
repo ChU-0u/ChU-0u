@@ -4,31 +4,37 @@ art by: zzz | @orchid_dale on X/pixiv
 -- -- --
 current interests
 - Anime:
-- OnS | HnK | HxH | the apothecary diaries
+- OnS | HxH | the apothecary diaries
 - Games:
 - Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Genshin Impact | Reverse1999 | BlackBeacon | ENA: Dream BBQ
+
+all time favorites
+- HnK | Jojo | Ghibli movies
+- movies:
+- pirates of the caribbean(All parts) | alice in wonderland/alice through the looking glass
 -- -- --
 favorite characters ♥
 - hi3d- Otto | Kallen | Kiana | Fu Hua\Senti | Theresa | Su | Durandal | Tesla | (P.E) Sakura
-- HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi | Himeko | Sushang | Tingyun
+- HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi | Himeko | Tingyun | Aglaea
 - ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon | Yi xuan | Trigger
 - Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari | Navia | Escoffier(tho her clothes are…terrible)
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika | Biscuit
 
 Vocaloids
-- Gakupo | Kaito | Hatsune Miku
+- Gakupo | Kaito
 -- -- --
 ![IMG_8016](https://github.com/user-attachments/assets/1be05b27-5831-455d-bc3b-9c8d0190d2d9)
 
 art by: meimei on pixiv
 -- -- --
 ships ♥
-- Hi3d- OttoKallen | KiaMei | DuraRita | KevinSu/KevinDrMei | VoidWelt 
-- HsR- JingLuo | ArgentHill | RenHeng(before death) | PhaiDei
+- Hi3d- OttoKallen | KiaMei | KevinSu/KevinDrMei | VoidWelt | P.E SakuKalpas
+- HsR- JingLuo | ArgentHill | RobinHill | RenHeng(before death) | PhaiDei
 - GI: EscoFuri
 - 
 - im fine with any ship untill its weird or problematic.
+- Also DNI if you go on insulting/wishing death on people over ships
 -- -- --
 ![IMG_0431](https://github.com/user-attachments/assets/f924b17a-09be-4944-b1db-38096d999391)
 

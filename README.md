@@ -24,9 +24,9 @@ favorite characters ♥
 Vocaloids
 - Gakupo | Kaito
 -- -- --
-![IMG_8016](https://github.com/user-attachments/assets/1be05b27-5831-455d-bc3b-9c8d0190d2d9)
+![IMG_1312](https://github.com/user-attachments/assets/0ce4f5ba-ca0a-478c-8095-11c62d022e72)
 
-art by: meimei on pixiv
+art by: @Maquesu1 on X
 -- -- --
 ships ♥
 - Hi3d- OttoKallen | KiaMei | KevinSu/KevinDrMei | VoidWelt | P.E SakuKalpas

@@ -34,7 +34,8 @@ ships ♥
 - GI: EscoFuri
 - 
 - im fine with any ship untill its weird or problematic.
-- Also DNI if you go on insulting/wishing death on people over ships
+
+ !! Also DNI if you go on insulting/wishing death to people over ships !!
 -- -- --
 ![IMG_0431](https://github.com/user-attachments/assets/f924b17a-09be-4944-b1db-38096d999391)
 

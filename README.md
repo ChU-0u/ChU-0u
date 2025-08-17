@@ -9,15 +9,15 @@ current interests
 - Honkai impact 3rd | Honkai star rail | Zenless Zone Zero | Genshin Impact | Reverse1999 | BlackBeacon | ENA: Dream BBQ
 
 all time favorites
-- HnK | Jojo | Ghibli movies
+- HnK | Jojo | Ghibli creations
 - movies:
 - pirates of the caribbean(All parts) | alice in wonderland/alice through the looking glass
 -- -- --
 favorite characters ♥
-- hi3d- Otto | Kallen | Kiana | Fu Hua\Senti | Theresa | Su | Durandal | Tesla | (P.E) Sakura
-- HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi | Himeko | Tingyun | Aglaea
-- ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon | Yi xuan | Trigger
-- Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Tighnari | Navia | Escoffier(tho her clothes are…terrible)
+- hi3d- | Otto | Kallen | Durandal | Senti/Fu Hua | Kalpas | P.E Sakura | Theresa | Su
+- HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th | Jing Yuan | Yaoshi | Himeko | Aglaea | Mydei
+- ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon | Yi xuan
+- Gi- Furina | neuvillette | Albedo | Baizhu | Heizou | Wriothesley | Navia
 - HnK- phosphophyllite | padparadscha | rutile
 - HxH- Killua | Alluka | Illumi | Kurapika | Biscuit
 
@@ -29,13 +29,13 @@ Vocaloids
 art by: @Maquesu1 on X
 -- -- --
 ships ♥
-- Hi3d- OttoKallen | KiaMei | KevinSu/KevinDrMei | VoidWelt | P.E SakuKalpas
-- HsR- JingLuo | ArgentHill | RobinHill | RenHeng(before death) | PhaiDei
-- GI: EscoFuri
-- 
+- Hi3d- OttoKallen | KiaMei | VoidWelt | P.E SakuKalpas
+- HsR- JingLuo | ArgentHill | RobinHill | RenHeng(before death)
+- GI- EscoFuri
+- ZzZ- LycaHugo
 - im fine with any ship untill its weird or problematic.
 
- !! Also DNI if you go on insulting/wishing death to people over ships !!
+ !! Also DNI if you go on insulting/wishing death to people over ships[ya'll are gross] !!
 -- -- --
 ![IMG_0431](https://github.com/user-attachments/assets/f924b17a-09be-4944-b1db-38096d999391)
 

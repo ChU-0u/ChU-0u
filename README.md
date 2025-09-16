@@ -21,6 +21,7 @@ favorite characters ♥
 
 Vocaloids
 - Gakupo | Kaito | Teto
+
 Random
 - Harvey Harvington
 -- -- --

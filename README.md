@@ -13,7 +13,7 @@ all time favorites
 - pirates of the caribbean(All parts) | alice in wonderland/alice through the looking glass
 -- -- --
 favorite characters ♥
-- hi3d- | Otto | Kallen | Durandal | Senti | Fu Hua | Kalpas | P.E Sakura | Theresa | Kiana
+- hi3d- | Otto | Kallen | Durandal | Senti | Fu Hua | Kalpas | P.E Sakura | Theresa | Kiana | Su
 - HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th/evernight | Jing Yuan | Mydei | Dan Heng
 - ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon | Yi xuan
 - Gi- Furina | neuvillette | Baizhu | Heizou | Wriothesley | Navia | Skirk

@@ -29,7 +29,7 @@ art by: @Maquesu1 on X
 -- -- --
 ships ♥
 - Hi3d- OttoKallen | KiaMei | VoidWelt | P.E SakuKalpas | ElyEden(kinda?)
-- HsR- JingLuo | ArgentHill | RobinHill | RenHeng(before death)
+- HsR- JingLuo | ArgentHill | RenHeng(before death)
 - GI- EscoFuri
 - ZzZ- LycaHugo
 - im fine with any ship untill its weird or problematic.

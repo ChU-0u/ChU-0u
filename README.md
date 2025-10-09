@@ -15,7 +15,7 @@ all time favorites
 favorite characters ♥
 - hi3d- | Otto | Kallen | Durandal | Senti | Fu Hua | Kalpas | P.E Sakura | Theresa | Kiana | Su
 - HsR- Luocha | Jiaoqiu | boothill | Shush(Va robot) | March 7th/evernight | Jing Yuan | Mydei | Dan Heng | Yingxing
-- ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon | Yi xuan
+- ZzZ- Hugo | Lighter | Burnice | Wise | Lycaon
 - Gi- Furina | neuvillette | Baizhu | Heizou | Wriothesley | Navia | Skirk
 - HnK- phosphophyllite | padparadscha | rutile
 
